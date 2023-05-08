@@ -1,0 +1,5 @@
+Download Link: https://assignmentchef.com/product/solved-using-porters-five-forces-model
+<br>
+Using Porter’s Five Forces Model, personal Critical Success Factors (CSFs) and/ personal Key Performance Indicators (KPIs), explain how you will overcome threats from each of the five forces while achieving your professional goal(s) after graduation from the MS-IST Program.  The paper’s first paragraph must identify and define, at least one, of your post-graduation professional goals.
+
+The paper must following the formatting guidelines in The Publication Manual of the American Psychological Association (2010), (6th ed., 7th printing), and contain a title page, five scholarly references, three to five pages of content, and a reference page. In addition, the paper will be submitted through the SafeAssign originality-checking tool.  More APA assistance can be found at the <a href="https://owl.english.purdue.edu/owl/resource/560/01/" rel="nofollow">Purdue University Online Writing Lab</a>.
